@@ -7,7 +7,7 @@
 📍 Puerto Montt – Chile  
 💼 Buscando oportunidades de práctica profesional o posición junior  
 📧 victorremolcoy6@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/victor-remolcoy) | [GitHub](https://github.com/viremolcoy)
+🔗 [LinkedIn](https://www.linkedin.com/in/victor-remolcoy) | [GitHub](https://github.com/viremolcoy) | [CV](https://github.com/viremolcoy/CV/blob/main/CV_Victor_Remolcoy.pdf) 
 
 ---
 
